@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @xk1lla
+- 👀 I’m interested in videogames
+- 🌱 I’m currently learning english 
+- 💞️ I’m looking to collaborate on Epic Games
+- 📫 How to reach me in tw: @i5manji
